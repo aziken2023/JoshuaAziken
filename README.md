@@ -1,4 +1,4 @@
-# Hi, I'm Joshua Azike
+# Hi, I'm Joshua Aziken
 
 👋 Welcome to my GitHub profile!
 
