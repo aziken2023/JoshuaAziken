@@ -28,4 +28,4 @@ Here's a summary of my technical skills:
 
 I'm always eager to connect with fellow data enthusiasts and explore new opportunities. Feel free to reach out to me on:
 
-* MY LinkedIN: [[LinkedIn](www.linkedin.com/in/joshua-aziken-a1b340221)](https://www.linkedin.com/in/joshua-aziken-a1b340221/)
+* MY LinkedIN: (www.linkedin.com/in/joshua-aziken-a1b340221)](https://www.linkedin.com/in/joshua-aziken-a1b340221/)
